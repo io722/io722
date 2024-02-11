@@ -6,6 +6,3 @@
 - I go by it/he༝༚༝༚
 - Feel free to talk >w< I luvvv akechi 
 
-io722/io722 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
