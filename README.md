@@ -4,7 +4,7 @@
 -  ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ Learning n0t muchhh bbuut I'm alw4ys loookkin at new stuff ☆⋆｡𖦹°‧★
 -✧˚ ༘ ⋆｡♡˚˶ᵔ ᵕ ᵔ˶ 
 -  GGuh!! O_O 🃜🃚🃖🃁🂭🂺
-- I go by it/he༝༚༝༚
+  
 
 
 -if you're from ponytown, feel free to interact! I'm offtab a lot so whisper 2 me, i'll talk about absolutely any common intterests
